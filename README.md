@@ -1,0 +1,2 @@
+# SIGED.certificado-preparatoria-autenticacion-SORM960420MDGTDT02
+SORM960420MDGTDT02
